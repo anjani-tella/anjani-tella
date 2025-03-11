@@ -3,7 +3,7 @@
 
 - 📫 How to reach me **anjani.tella2003@gmail.com**
 
-- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1h3O8CRNzxuRyDQpjyTptwUbOJ6NeI7IE/view)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1KLKBusRbXgcRF4GdSSZDmVge7sRa5-Wu/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
